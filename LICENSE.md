@@ -1,4 +1,4 @@
-# 
+# Get the ultimate new token sniper bot with new new token sniper bot | slippage-control + private-RPC-nodes. Featuring slippage-control and private-RPC-nodes, it's the best choice
 
 
 
